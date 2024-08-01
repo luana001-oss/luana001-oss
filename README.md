@@ -10,4 +10,4 @@ uso esse espaço pra organização
 entre em contato comigo:
 @luanacorreia2311
 
-![](https://media.giphy.com/media/ZTzQzfKCMWLQkwwX5i/giphy.gif)
+![](https://i.giphy.com/media/v1.Y2lkPTc5MGI3NjExYjBqa2Y0dWE0Z3NxNWk1cWp1dDBpd2JtdDl1bmMxcHZwamlocnpscCZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9cw/7XW30YJA2ZbWO2XVLi/giphy.gif)
